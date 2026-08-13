@@ -24,4 +24,4 @@
 
 ---
 
-⚡ *Dica: Todos os dias é uma nova oportunidade para aprender algo novo!*
+⚡ *Aprendendo mais cada dia*
