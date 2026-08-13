@@ -1,7 +1,6 @@
 # Olá, eu sou o Pedro 👋
 
 🎓 **Estudante do 1º ano do Ensino Médio** (15 anos)  
-🚀 Apaixonado por tecnologia e sempre ansioso para aprender coisas novas!
 
 ---
 
